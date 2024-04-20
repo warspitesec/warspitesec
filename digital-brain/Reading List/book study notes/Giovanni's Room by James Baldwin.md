@@ -1,0 +1,1 @@
+chapter 1 / 5:30 _“...for nothing is more unbearable, once one has it, than freedom.”_

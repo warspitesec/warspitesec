@@ -1,0 +1,1 @@
+Electronic Warfare (EW) **represents the ability to use the electromagnetic spectrum—signals such as radio, infrared, or radar—to sense, protect, and communicate**.

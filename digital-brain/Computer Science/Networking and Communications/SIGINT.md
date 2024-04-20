@@ -1,0 +1,1 @@
+SIGINT is **intelligence derived from electronic signals and systems used by foreign targets**, such as communications systems, radars, and weapons systems that provides a vital window for our nation into foreign adversaries' capabilities, actions, and intentions.
